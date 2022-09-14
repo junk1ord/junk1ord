@@ -5,11 +5,11 @@
 
 - 🔭 I’m currently working on **my portfolio website!**
 
-- 📫 How to reach me **rakshit.deshmukh2012@gmail.com**
+- 📫 Here's how to reach me - **rakshit.deshmukh2012@gmail.com**
 
 - 📄 Know about my experiences [shorturl.at/ekvwX](shorturl.at/ekvwX)
 
-- ⚡ Fun fact **I go by the pronouns hash/ish 🙂**
+- ⚡ Fun fact : **I go by the pronouns hash/ish 🙂**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
